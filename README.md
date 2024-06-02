@@ -1,15 +1,17 @@
-# Te lo vendo 🏪
+# CONTIGO PROPIEDADES 
 
-## Entrega grupal - sala 2
+## Gestión Inmobiliaria
 
-**Te lo vendo** es una tienda online, en la cual se pueden comprar todo tipo vestuario masculino.
+**Contigo Propiedades Ltda** es una empresa de servicios inmobiliarios en Concepción y alrededores.
 
-_Ven te esperamos en Pedro Aguirrez Cerda # 5689_
+_Contacta a tu agente de confianza para encontrar tu hogar e inversión perfecta_
 
-## Integrantes 😎
+## Agentes
 
+- Julián Careaga
+- Alexis Alarcón
 - Felipe Landeros
-- Ignacion Velásquez
-- Juan Carlos Gaete
-- Oscar Muñoz
-- Yordy Carmona
+- Isabel Díaz
+- Luis Alberto Fuentes
+- Felipe Eguiguren
+- Marcela Muñoz
